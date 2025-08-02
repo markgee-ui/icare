@@ -54,5 +54,4 @@ Whether you're dealing with anxiety, stress, or trauma — or just need someone 
 
 ---
 
-*We care. We listen. We support.*  
-**– The iCare Team**
+
